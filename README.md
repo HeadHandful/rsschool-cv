@@ -1,1 +1,1 @@
-# rsschool-cv
+https://HeadHandful.github.io/rsschool-cv/cv
